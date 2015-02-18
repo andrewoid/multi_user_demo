@@ -7,3 +7,12 @@ Rachel A Bensoussan
 Avigayl Mayzel
 
 Devora Green
+
+Nechama Spira
+
+Tzipora Ziegler
+
+Avigayl Mayzel
+
+Shayni
+
