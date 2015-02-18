@@ -4,8 +4,6 @@ Andrew Schwimmer
 
 Rachel A Bensoussan
 
-Avigayl Mayzel
-
 Devora Green
 
 Nechama Spira
@@ -19,8 +17,6 @@ Shayni
 shifra glazer
 
 Esti Sendrovitz
-
-Avigayl Mayzel
 
 Rivka Reifman
 
