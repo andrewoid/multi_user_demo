@@ -26,18 +26,22 @@ Chava Shapiro
 
 Ahuva Foxman :)
 
+Libby Jaffa
+
 SHAINDY NEUSTADT!!
+
 Chayala Glazer
 
 Malkie Golub
 
-SHAINDY NEUSTADT!!
-Chayala Glazer
-
 Leah Yarmark
 
+<<<<<<< HEAD
 SHAINDY NEUSTADT!!
 Rena Kerstein
 Chayala Glazer
 
 
+=======
+Ahuva Neuhoff
+>>>>>>> 4fd4a329b4b1bbe91a7aa427cb665d4a794db025
