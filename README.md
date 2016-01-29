@@ -1,7 +1,5 @@
 # multi_user_demo
 
-Andrew Schwimmer
-
 Rachel A Bensoussan
 
 Devora Green
@@ -22,13 +20,33 @@ Rivka Reifman
 
 Ettie Lieberman
 
+Ariella Feuchtwanger
+Chava Shapiro
+
+Ahuva Foxman :)
+
+Libby Jaffa
+
+SHAINDY NEUSTADT!!
+
+Chayala Glazer
+
+Malkie Golub
+
 Leah Yarmark
 
 SHAINDY NEUSTADT!!
 
-<<<<<<< HEAD
 Chaya Sara Yoffe
-=======
-SHAINDY NEUSTADT!!
+
 Chayala Glazer
->>>>>>> b84ffd779107cb998aa04fcf2bd176107e175e75
+Leah Kops
+
+
+SHAINDY NEUSTADT!!
+
+Andrew Schwimmer
+
+Rena Kerstein
+
+Ahuva Neuhoff
