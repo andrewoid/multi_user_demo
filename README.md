@@ -22,11 +22,16 @@ Rivka Reifman
 
 Ettie Lieberman
 
-Leah Yarmark
+Chava Shapiro
 
+
+Malkie Golub
+
+SHAINDY NEUSTADT!!
+Chayala Glazer
+
+Leah Yarmark
 
 Leah Kops
 
 
-SHAINDY NEUSTADT!!
-Chayala Glazer
