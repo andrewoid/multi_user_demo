@@ -24,14 +24,28 @@ Ettie Lieberman
 
 Chava Shapiro
 
+Ahuva Foxman :)
+
+Libby Jaffa
+
+SHAINDY NEUSTADT!!
+
+Chayala Glazer
 
 Malkie Golub
 
-SHAINDY NEUSTADT!!
-Chayala Glazer
-
 Leah Yarmark
+
 
 Leah Kops
 
+
+SHAINDY NEUSTADT!!
+Rena Kerstein
+Chayala Glazer
+
+
+
+
+Ahuva Neuhoff
 
