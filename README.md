@@ -20,9 +20,30 @@ Rivka Reifman
 
 Ettie Lieberman
 
+Chava Shapiro
+
+Ahuva Foxman :)
+
+Libby Jaffa
+
+SHAINDY NEUSTADT!!
+
+Chayala Glazer
+
+Malkie Golub
+
 Leah Yarmark
 
 
+Leah Kops
+
+
 SHAINDY NEUSTADT!!
+
 Andrew Schwimmer
+Rena Kerstein
 Chayala Glazer
+
+Ahuva Neuhoff
+
+
