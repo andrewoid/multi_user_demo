@@ -22,13 +22,12 @@ Rivka Reifman
 
 Ettie Lieberman
 
+Chava Shapiro
+
 Leah Yarmark
 
-
 SHAINDY NEUSTADT!!
-<<<<<<< HEAD
 
 Ahuva Neuhoff
-=======
+
 Chayala Glazer
->>>>>>> b84ffd779107cb998aa04fcf2bd176107e175e75
