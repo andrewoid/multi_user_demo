@@ -20,6 +20,7 @@ Rivka Reifman
 
 Ettie Lieberman
 
+Ariella Feuchtwanger
 Chava Shapiro
 
 Ahuva Foxman :)
@@ -41,9 +42,9 @@ Leah Kops
 SHAINDY NEUSTADT!!
 
 Andrew Schwimmer
+
 Rena Kerstein
 Chayala Glazer
 
 Ahuva Neuhoff
-
 
